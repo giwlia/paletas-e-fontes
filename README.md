@@ -1,1 +1,1 @@
-# paletas-e-fontes
+# paletas e fontes
